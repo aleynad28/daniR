@@ -1,1 +1,1 @@
-Dani es genial y tioene dos gatos gordos
+Dani es genial y tiene dos gatos gordos
